@@ -35,5 +35,5 @@ To begin my career as a Data Analyst and continuously improve my analytical and 
 
 ## 📫 Connect with Me
 
-- LinkedIn: (Coming Soon)
+- LinkedIn: www.linkedin.com/in/cheguri-pujitha
 - Email: pujithareddy@gmail.com
